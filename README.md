@@ -18,6 +18,8 @@ PROTOTYPE IMAGE
 
 ![WhatsApp Image 2023-12-19 at 20 37 27](https://github.com/PurvajaNarayan/SmartWheelchair/assets/154343922/4934c3b3-e809-4a72-85f8-c3afc316ab12)
 ![WhatsApp Image 2023-12-19 at 20 37 27 (1)](https://github.com/PurvajaNarayan/SmartWheelchair/assets/154343922/b8383d55-4c17-4e8d-a314-91e9fb083231)
+![WhatsApp Image 2023-12-19 at 20 37 26](https://github.com/PurvajaNarayan/SmartWheelchair/assets/154343922/c3d7b9d8-6423-47a4-9bf1-48c4b881bd05)
+![WhatsApp Image 2023-12-19 at 20 37 28](https://github.com/PurvajaNarayan/SmartWheelchair/assets/154343922/8e770943-6a30-4703-ac2e-8b28ce9cd5e7)
 
 
 
